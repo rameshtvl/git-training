@@ -1,1 +1,1 @@
-this is maths class
+this is maths online class
