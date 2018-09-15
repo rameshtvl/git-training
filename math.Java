@@ -1,1 +1,1 @@
-this is maths class
+this is MATHS class
